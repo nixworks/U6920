@@ -1,2 +1,3 @@
 # U6920
-藍
+
+藍 ( qiàn ) wooden tablet; edition
